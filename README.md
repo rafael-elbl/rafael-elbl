@@ -1,4 +1,4 @@
-🚀 Sup!! Wellcome to my mind
+🚀 Sup!! Welcome to my mind
 
 🚘  Nice to meet you!! My name is Rafael Elbl...
 
